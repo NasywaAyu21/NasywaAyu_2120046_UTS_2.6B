@@ -1,0 +1,1 @@
+# NasywaAyu_2120046_UTS_2.6B
